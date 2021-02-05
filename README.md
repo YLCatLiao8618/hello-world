@@ -1,2 +1,6 @@
 # hello-world
-Just another repository
+
+Hewo hoomans
+
+Koronesuki here, I like watching God Doog streams
+Yubi Yubi
